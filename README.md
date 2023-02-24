@@ -1,1 +1,3 @@
-# bea
+# ORIJINAL YILLIK YAZILARI
+## Barış
+Bea'm, seninle tanıştığım gün hayatımın en şanslı günüymüş de ben fark edememişim. En zor zamanlarımda yanımda oldun; her zaman koşulsuz beni destekledin ve hiçbir karşılık beklemedin. Hayatımda tanıdığım ve tanıyacağım en iyi kalpli ve güzel kızsın, biliyorum. Düşünceli yapın, özverili kişiliğin ile sadece benim değil herkesin hayatını güzelleştiriyorsun. İnsanlar çevresinde sana sahip olduğu için çok şanslılar bunu sakın unutma. Bütün bu iyi kişiliğin ve güzelliğinin yanı sıra hayatımda tanıdığım en eğlenceli insansın. Seninle biraz bile vakit geçirince moralim yerine geliyor, hayat enerjim artıyor. Lütfen hiçbir zaman saflığını, en ufak şeylerde bile mutluluk bulabilme özelliğini kaybetme, olur mu? İnanıyorum ki çok başarılı olacaksın ve biliyorum ki ben de senin başarılarında her zaman yanında olacağım. Seninle çok daha fazla ve güzel anılar biriktirme dileğiyle, të dua!
